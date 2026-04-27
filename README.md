@@ -15,4 +15,4 @@ Destek olun: Bilgi paylaştıkça çoğalır. Eğer sen de benzer konularda çal
 
 "Öğrenmenin sonu yok, ama birlikte yol almak daha keyifli."
 
-📫 Bana LinkedIn üzerinden yazabilir, teknik konularda her zaman sohbet edebiliriz. Tavsiyelerinizi bekliyorum!
+📫 Bana LinkedIn(www.linkedin.com/in/mehmetcankocak) üzerinden yazabilir, teknik konularda her zaman sohbet edebiliriz. Tavsiyelerinizi bekliyorum!
